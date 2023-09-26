@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 my name is sabarinath.i am new to coding and stuff.i am currently doing b.tech in mechanical engineering from gec barton hill.😁
 
 <!--
 **Sabari-nath007/Sabari-nath007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
